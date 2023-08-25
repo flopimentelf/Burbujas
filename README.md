@@ -1,0 +1,2 @@
+# Burbujas
+ imagen escrita
